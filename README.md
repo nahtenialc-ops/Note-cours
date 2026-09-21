@@ -1,2 +1,2 @@
 # Note-cours
-à finir chez qoi
+à finir chez soi
